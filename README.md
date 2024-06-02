@@ -32,3 +32,12 @@ Powered By kiplymacho
 - Bila masih bingung bisa di tanyakan 
  [Facebook](https://www.facebook.com/httpcustomkiplymacho/)
 - Contacts Person: [WhatsApp](https://wa.me/6285751032225)
+
+- Bila masih bingung bisa di tanyakan 
+- [Facebook](https://www.facebook.com/httpcustomkiplymacho/)
+- Contacts Person: [WhatsApp](https://wa.me/6285751032225) 
+
+# _Follow_
+- Klik Disini 👉[YouTube](https://www.youtube.com/@km7ujuh)
+- Klik Disini👉[instagram](https://instagram.com/kiplymacho)
+- 
